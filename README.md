@@ -1,1 +1,4 @@
-# trabaio
+Certa vez, quando eu era apenas uma criança de pouca idade e muito tamanho, me deparei em uma situação desesperadora, que hoje parece engraçado, mas na época foi assustador.
+
+No 5º ano em minha escola, iniciamos um projeto de horta sustentável, onde plantávamos as saladas e legumes utilizadas para merenda (provavelmente ajudando em um esquema de corrupção hahaha). Neste projeto, ás quartas, íamos para a roça fazer a manutenção e plantio de leguminosas e vegetais. Meu nome amigo, Gabriel, me ajudava bastante no arado e sempre dávamos boas risadas nas atividades. Certo dia, ao explorar o matagal da roça, um outro colega (ao qual eu possuía um ódio descomunal) grita:(Leia com voz de personagem de point blank) "Fire In The Hall". Pisco meus olhos, vejo um tijolo voando na cara do Gabriel, o tijolo machuca a orelha dele e ele começa a chorar. Ao levar os dois para a diretoria, o colega mal intencionado nos diz a motivação: "Upei de patente e queria mostrar que sou bom até fora do pc".
+
