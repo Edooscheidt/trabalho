@@ -1,6 +1,4 @@
-# Quando eu era apenas uma grande criança de pequena idade, lá pelos meus 09 anos, no auge da inocência, decidi fazer um desenho em homenagem ao dias dos pais para, adivinhem, o meu Pai.
+Certa vez, quando eu era apenas uma criança de pouca idade e muito tamanho, me deparei em uma situação desesperadora, que hoje parece engraçado, mas na época foi assustador.
 
-# Pois bem, ao pensar no que eu poderia fazer, cheguei rapidamente a uma conclusão. "Se meu pai é contador, irei fazer o símbolo da contabilidade!"(Pesquisar símbolo para contexto), dito isso, visualizei que meu pai tem uma ausência de cabelo (calvície), então eu fiz o desenho do símbolo da contabilidade, só que no lugar do chapéu, fiz a cabeça dele com calvície.
-
-# Ele me agradeceu, meio sem graça. Tal qual uma criança ao receber meias de natal. Já minha mãe, se imergiu na comédia enquanto chorava de tanto rir.
+No 5º ano em minha escola, iniciamos um projeto de horta sustentável, onde plantávamos as saladas e legumes utilizadas para merenda (provavelmente ajudando em um esquema de corrupção hahaha). Neste projeto, ás quartas, íamos para a roça fazer a manutenção e plantio de leguminosas e vegetais. Meu nome amigo, Gabriel, me ajudava bastante no arado e sempre dávamos boas risadas nas atividades. Certo dia, ao explorar o matagal da roça, um outro colega (ao qual eu possuía um ódio descomunal) grita:(Leia com voz de personagem de point blank) "Fire In The Hall". Pisco meus olhos, vejo um tijolo voando na cara do Gabriel, o tijolo machuca a orelha dele e ele começa a chorar. Ao levar os dois para a diretoria, o colega mal intencionado nos diz a motivação: "Upei de patente e queria mostrar que sou bom até fora do pc".
 
